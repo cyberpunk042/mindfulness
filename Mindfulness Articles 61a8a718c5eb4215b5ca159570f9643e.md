@@ -64,7 +64,7 @@ IF you don't believe me, come see me, I will show you that my philosophy is not 
 
 [The consequence](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/The%20consequence%20b576a0cb2cc94a45be08503b6589efa4.md) 
 
-[battery](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/battery%20e1d685ff79ac46dd8899c156a541ddab.md) 
+‣ 
 
 [The desire for someone or something](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/The%20desire%20for%20someone%20or%20something%20855aff84f95e4672a6567e269cb9ac14.md) 
 
