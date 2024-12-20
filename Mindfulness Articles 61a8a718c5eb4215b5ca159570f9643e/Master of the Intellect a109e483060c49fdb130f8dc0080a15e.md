@@ -75,7 +75,7 @@ You can learn, train and enforce your perspective, views of life and glue them t
 
 Instead of having it in constant activation, moving from thought to thought it can hold the puzzle.
 
-Like: [Perspective](Perspective%208ad543d8b9fd467d908f5a4e8b32334a.md), [Breath?](Breath%206edef2d4f208489599679a457e7572da.md)  and [The Quantum / Energetic Self Explained](The%20Quantum%20Energetic%20Self%20Explained%20ed7bbf84840747bd924d28b9291aced5.md) (& the 5th D?)
+Like: [Perspective](Perspective%208ad543d8b9fd467d908f5a4e8b32334a.md), [Breath?](https://www.notion.so/Breath-6edef2d4f208489599679a457e7572da?pvs=21)  and [The Quantum / Energetic Self Explained](The%20Quantum%20Energetic%20Self%20Explained%20ed7bbf84840747bd924d28b9291aced5.md) (& the 5th D?)
 
 <aside>
 💡 Impulse Control may make a huge difference in the balances of energies.
