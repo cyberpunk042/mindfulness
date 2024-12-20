@@ -9,8 +9,6 @@
 
 [Peace](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/Peace%2031bc0c5e6f64410e8c9fb34cd4c7ea22.md) 
 
-[Breath?](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/Breath%206edef2d4f208489599679a457e7572da.md)
-
 [My game ](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/My%20game%2031f34ef2de0b4ae997d1271cd61ff0db.md)
 
 [The Helper](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/The%20Helper%2015a31b8d5c46808aa345ee2fbf18e869.md) 
@@ -54,17 +52,17 @@ IF you don't believe me, come see me, I will show you that my philosophy is not 
 
 [**Mindful Management of Flow State**](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/Mindful%20Management%20of%20Flow%20State%20fa0867363f6e4baebe3eb6611c11e82a.md)
 
+[**Breath: A Gateway to Awareness**](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/Breath%20A%20Gateway%20to%20Awareness%2016231b8d5c4680c383c4fd507dabef51.md)
+
 [A reflexion on temptation and rush](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/A%20reflexion%20on%20temptation%20and%20rush%209b372968a5eb49569285085948661c60.md) 
 
 [Rush & Drain & **Recovery Pace**](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/Rush%20&%20Drain%20&%20Recovery%20Pace%20ae4012daf01b4e8498403a7a2769389b.md) 
 
 [Rush happens with anything](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/Rush%20happens%20with%20anything%202996adc692e54904b9115b17dcdaafa8.md) 
 
-[Charge Up and Down](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/Charge%20Up%20and%20Down%209f185b904fca4d079f7e5dcb72f0a05d.md) 
+[Recreation - Charge Up and Down](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/Recreation%20-%20Charge%20Up%20and%20Down%209f185b904fca4d079f7e5dcb72f0a05d.md) 
 
-[The consequence](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/The%20consequence%20b576a0cb2cc94a45be08503b6589efa4.md) 
-
-[battery](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/battery%20e1d685ff79ac46dd8899c156a541ddab.md) 
+[Consequence of lack of motivation](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/Consequence%20of%20lack%20of%20motivation%20b576a0cb2cc94a45be08503b6589efa4.md) 
 
 [The desire for someone or something](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/The%20desire%20for%20someone%20or%20something%20855aff84f95e4672a6567e269cb9ac14.md) 
 
@@ -80,15 +78,10 @@ IF you don't believe me, come see me, I will show you that my philosophy is not 
 
 [Deep and interconnected themes](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/Deep%20and%20interconnected%20themes%20a590b1954bf04d6f87b41230dab4e56a.md)
 
-If okay “Gravity is the power of the mind”, how not to “overdo it” ?
-You cannot ambrace this power, this reality if you cannot handle it.
-
-- [ ]  Make sure we have the full perspective on this not to hurt ourself.
-
 A bit like a trip of mush or such, as much as you might induce yourself in a great state of flow, you might also fail along the route, and have to suck it up and survive through the trip you initiated.
 *Dissociation is not the way. This the cost / risk of attempting to “exploit” / explore this potential.*
 
-The problem with rising and rising and reaching a point of feeling so stron and live !???
+The problem with rising and rising and reaching a point of feeling so strong and live !???
 Wanting more in life!? Is it a power trip, just boredom, or curiosity maybe!???
 Hard to tell, might be mixed, but we go back on the edge of temptation.
 What is temptation? Gouverned by the desire for sensations.
