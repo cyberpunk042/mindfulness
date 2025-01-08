@@ -7,15 +7,21 @@
 > ***With this model, you cannot fail***
 > 
 
-[Peace](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/Peace%2031bc0c5e6f64410e8c9fb34cd4c7ea22.md) 
+[Peace](https://www.notion.so/Peace-31bc0c5e6f64410e8c9fb34cd4c7ea22?pvs=21) 
 
 [State(s)](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/State(s)%2016431b8d5c46801b986ade0f7198682c.md)
 
 [My game ](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/My%20game%2031f34ef2de0b4ae997d1271cd61ff0db.md)
 
-[The Helper](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/The%20Helper%2015a31b8d5c46808aa345ee2fbf18e869.md) 
+[Participant](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/Participant%2017531b8d5c4680e5901ddbdf764b1f63.md) 
+
+[The breath](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/The%20breath%2017531b8d5c4680848732d96416796b78.md)
 
 [Perspective](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/Perspective%208ad543d8b9fd467d908f5a4e8b32334a.md) 
+
+[**Locomotion**](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/Locomotion%2017231b8d5c468053a309f5bea35c16b7.md)
+
+[The Helper(s)](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/The%20Helper(s)%2015a31b8d5c46808aa345ee2fbf18e869.md) 
 
 [Slowing down](Mindfulness%20Articles%2061a8a718c5eb4215b5ca159570f9643e/Slowing%20down%205bbca04cba154d11a6e4d63547d629e4.md) 
 

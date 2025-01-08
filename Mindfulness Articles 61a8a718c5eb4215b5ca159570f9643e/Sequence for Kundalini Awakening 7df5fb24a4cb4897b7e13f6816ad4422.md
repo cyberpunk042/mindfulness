@@ -1,6 +1,6 @@
 # Sequence for Kundalini Awakening
 
-![DALL·E 2023-11-28 11.38.45 - An illustration of a man practicing Kundalini yoga. He is seated in a meditative pose, eyes closed, with a serene expression. The image shows subtle e.png](Sequence%20for%20Kundalini%20Awakening%207df5fb24a4cb4897b7e13f6816ad4422/DALLE_2023-11-28_11.38.45_-_An_illustration_of_a_man_practicing_Kundalini_yoga._He_is_seated_in_a_meditative_pose_eyes_closed_with_a_serene_expression._The_image_shows_subtle_e.png)
+![DALL·E 2023-11-28 11.38.45 - An illustration of a man practicing Kundalini yoga. He is seated in a meditative pose, eyes closed, with a serene expression. The image shows subtle e.png](Sequence%20for%20Kundalini%20Awakening%207df5fb24a4cb4897b7e13f6816ad4422/0f05880a-fbe6-46b5-a140-2cf7eddb9d41.png)
 
 1. **Begin With Patience, Root in Reality**: 
 Start grounded in the present, acknowledging the journey's patience and reality.
